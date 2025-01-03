@@ -4,4 +4,4 @@ Why should we choose you?
 How do you intend to contribute back to the club?
 - By spending extra time and effort as per the clubs interest. 
 What are your fields of interest (doesn’t have to be strictly technical) and how do you plan on working on them?
-Dedicate a certain amount of time for that. Everyday. 
+-Dedicate a certain amount of time for that. Everyday. 
